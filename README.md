@@ -1,0 +1,1 @@
+# Goodideax.github.io
